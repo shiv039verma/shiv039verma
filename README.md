@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shiv039verma
-- currently working as a forant-end developer intern ..
+- currently working as a front-end developer intern ..
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me  you can search me on my email shubhamvermadiv2002@gmail.com...
 
